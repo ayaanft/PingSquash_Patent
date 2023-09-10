@@ -1,0 +1,1 @@
+# PingSquash_Patent
